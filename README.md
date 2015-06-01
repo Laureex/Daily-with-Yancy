@@ -44,3 +44,27 @@ yancy@ab:~$ #每天发一张男朋友照片#
 （于是发来了一张照片。。。）  
 laura@ab:~$ 天。。。我要更新仓库  
 （我发现一切话题只要进行不下去了就可以用“更新仓库”来继续下去。。。）
+
+yancy@ab:~$ wuli南柱赫  
+laura@ab:~$ 为何刚才网页版提醒声音都不一样了。。。你发个带字母的？  
+yancy@ab:~$ abc  
+laura@ab:~$ 诶不对。。。只有你发那个人名的时候声音才不同，貌似  
+yancy@ab:~$ 南柱赫  
+laura@ab:~$ 对！声音不一样了！  
+yancy@ab:~$ 柱赫  
+laura@ab:~$ 还是不一样了！  
+yancy@ab:~$ wuli柱赫  
+laura@ab:~$ !  
+laura@ab:~$ 你发个别的人名，换个明星试试  
+yancy@ab:~$ 周杰伦。。  
+laura@ab:~$ 没有。。。  
+yancy@ab:~$ （捂脸）  
+laura@ab:~$ 诶有了。。。  
+yancy@ab:~$ 好高兴（捂脸）  
+laura@ab:~$ 诶还是有  
+yancy@ab:~$ 说明我和男朋友是真爱（捂脸）  
+yancy@ab:~$ 睡觉了。。  
+laura@ab:~$ 你和捂脸也是真爱2333333  
+laura@ab:~$ 连睡觉声音都不同，你和睡觉也是真爱  
+yancy@ab:~$ 我是真爱  
+laura@ab:~$ 声音还是不同！
