@@ -75,7 +75,7 @@ yancy@ab:~$ 我们吃香锅吧
 laura@ab:~$ 不想吃，你肚子不是刚好么，能吃得了那么多么   
 yancy@ab:~$ 哎呀都好了，吃吧  
 laura@ab:~$ 。。。那吃吧  
-（after supper）
+（after supper）  
 yancy@ab:~$ 哎呀撑死了，都是你非要吃香锅  
 laura@ab:~$ 明明是你说要吃的  
 yancy@ab:~$ 我说了要吃，你就说“那吃吧”，就不能说不吃么，哎呀我要复发了  
